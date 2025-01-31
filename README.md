@@ -1,2 +1,2 @@
 # Virus
-Discord: https://discord.gg/NPtqMTJqej
+Discord: https://discord.gg/TKdUemSHjG
